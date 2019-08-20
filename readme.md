@@ -4,7 +4,7 @@
 请立刻收藏保存本页！！<br>
 最新的平台回家页面  最新的平台回家页面https://github.com/doyu123/1       <br>
 
-# 最新苹果安卓下载地址2019年8月19日更新
+# 最新苹果安卓下载地址
 ### [doyu1.com](http://doyu1.com)
 ### [doyu2.com](http://doyu2.com)
 ### [doyu3.com](http://doyu3.com)
